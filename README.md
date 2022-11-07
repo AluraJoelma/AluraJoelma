@@ -5,4 +5,5 @@
 - 👀 I’m interested in aprender e compartilhar projetos e  trabalhos.
 - 🌱 I’m currently learning  linguagem de programação inicial.
 - 🈴 Moro na cidade de Ponta Grossa.
-
+- 🐈 Gosto de gatos.
+- 🕗 Prefiro estudar a noite.
