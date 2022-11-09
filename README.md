@@ -6,7 +6,7 @@
 - 🎱 Realizo pequenos projetos no Scratch e Javascript.
 - 🌱 I’m currently learning  linguagem de programação inicial.
 - 🈴 Moro na cidade de Ponta Grossa.
-- 🐈 Gosto de gatos.
+- 🐈 Gosto de gatos um pouco.
 - 🕗 Prefiro estudar a noite.
 - 🇧🇷 Meu país é o Brasil.
 - ✈️ Quero conhecer muitos lugares.
