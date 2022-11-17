@@ -9,4 +9,4 @@
 - 🐈 Gosto de gatos um pouco.
 - 🕗 Prefiro estudar a noite.
 - 🇧🇷 Meu país é o Brasil.
-- ✈️ Quero conhecer muitos lugares.
+- ✈️ Quero conhecer muitos lugares e paisagens.
