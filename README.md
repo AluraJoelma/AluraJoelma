@@ -10,3 +10,4 @@
 - 🕗 Prefiro estudar a noite.
 - 🇧🇷 Meu país é o Brasil.
 - ✈️ Quero conhecer muitos lugares e paisagens.
+- 🌐 Meu planeta é **TERRA**.
