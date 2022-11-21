@@ -11,3 +11,5 @@
 - 🇧🇷 Meu país é o Brasil.
 - ✈️ Quero conhecer muitos lugares e paisagens.
 - 🌐 Meu planeta é **TERRA**.
+- 👩‍👧‍👧Tenho duas filhas mulheres de 22 anos.
+- 👩‍👩‍👦Minhas razões de viver são mãe e neto.
