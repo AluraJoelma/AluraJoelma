@@ -13,3 +13,6 @@
 - 🌐 Meu planeta é **TERRA**.
 - 👩‍👧‍👧Tenho duas filhas mulheres de 22 anos.
 - 👩‍👩‍👦Minhas razões de viver são mãe e neto.
+- 💃Minha atividade de recreação preferida é dancar música gaucha.
+- ☕Sou apaixonada por café.
+- 🥭Gosto bastante da fruta manga.
