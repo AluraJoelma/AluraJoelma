@@ -1,4 +1,4 @@
-- # Sobre mim.
+- # Sobre mim:
 - ## Editando perfil:
 - 👋 I’m **@AluraJoelma**.
 - :+1: Meu email de contato é [email]joelma.krepel@escola.pr.gov.br.
