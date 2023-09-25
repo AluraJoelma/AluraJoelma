@@ -16,3 +16,4 @@
 - 💃Minha atividade de recreação preferida é dancar música gaucha.
 - ☕Sou apaixonada por café.
 - 🥭Gosto bastante da fruta manga.
+- Viver a vida!
