@@ -17,3 +17,4 @@
 - ☕Sou apaixonada por café.
 - 🥭Gosto bastante da fruta manga.
 - Viver a vida!
+- 🦋 Viva o agora.
